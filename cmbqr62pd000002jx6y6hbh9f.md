@@ -1,7 +1,7 @@
 ---
 title: "Political observations : Is This a Democracy?"
 seoTitle: "Political observations : Is there a Democracy?"
-seoDescription: "Throughout history, many systems have changed and contributed to what we have today is called Democracy. My observations based on it's principles."
+seoDescription: "Explore a critical analysis of modern democracy—examining how power, media, law, and leadership often betray democratic ideals. Learn why real change begins"
 datePublished: Mon Jun 09 2025 18:30:00 GMT+0000 (Coordinated Universal Time)
 cuid: cmbqr62pd000002jx6y6hbh9f
 slug: political-observations-is-this-a-democracy
