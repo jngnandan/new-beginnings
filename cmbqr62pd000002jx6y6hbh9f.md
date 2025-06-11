@@ -63,8 +63,9 @@ These branches prevent misuse of power, create checks and balances, and protect 
         
 2. **Executive** – Implements and enforces the laws & regulations (President, Prime Minister, and Ministers)
     
-    * Success is often measured by fundraising, popularity and influence, not public service. Executive branch expands its power beyond constitutional limits instead of just executing laws, it ends up interpreting, enforcing laws, often bypassing executive orders. Executive behave like monarchs or emperors. Leadership is judged on **style, charisma, and image**, not substance or moral responsibility, becoming more of performers than administrators.  
+    * Success is often measured by fundraising, popularity and influence, not public service. Executive branch expands its power beyond constitutional limits instead of just executing laws, it ends up interpreting, enforcing laws, often bypassing executive orders.  
           
+        Executive behave like monarchs or emperors. Leadership is judged on **style, charisma, and image**, not substance or moral responsibility & with the media leaders becoming more of performers than administrators.  
         In cases of civil unrest, leaders may enforce laws and use military force to suppress dissent, which contradicts democratic principles. So it’s all misuse of power.
         
 3. **Judiciary** – Interprets the laws and ensures justice (Courts and Judges)
