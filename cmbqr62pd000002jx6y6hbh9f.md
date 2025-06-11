@@ -55,4 +55,4 @@ What remains is a system that looks democratic on the surface but lacks its esse
 
 ### Real Change Begins With Participation
 
-Despite all its flaws, democracy still holds potential—if people are willing to engage. True change won’t come from waiting for a heroic saviour, as often shown in media and movies. It will come when people recognize their own power, participate actively, and demand better systems. Only then can democracy evolve into something real, inclusive, and just.
+Despite all its flaws, democracy still holds potential—if people are willing to engage. True change won’t come from waiting for a heroic saviour, as often shown in media and movies. It will come when people recognize their own power, participate actively, and demand better systems. Only then can democracy evolve into something real and inclusive for everyone.
