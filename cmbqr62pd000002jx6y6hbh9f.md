@@ -10,7 +10,7 @@ tags: politics, democracy
 
 ---
 
-Throughout history, many systems have changed and contributed to what we have today, but the main problems still exist, even with some improvements. We still have a long way to go. Here are some observations worth considering:
+Throughout history, many systems have evolved and shaped the world we know today, yet core issues persist despite some advancements. We still have significant progress to make. Here are some key observations to consider:
 
 ### Principles of Democracy:
 
@@ -61,9 +61,11 @@ These branches prevent misuse of power, create checks and balances, and protect 
     
     * Business groups often lobby politicians with donations, data, or advice to influence policies. Majority governments often dominate, leaving little room for opposition. The public is often swayed by media. So there are no checks and balances.
         
-2. **Executive** – Implements and enforces the laws (President, Prime Minister, and Ministers)
+2. **Executive** – Implements and enforces the laws & regulations (President, Prime Minister, and Ministers)
     
-    * Success is often measured by fundraising and popularity, not public service. In cases of civil unrest, leaders may enforce laws and use military force to suppress dissent, which contradicts democratic principles. It’s a misuse of power.
+    * Success is often measured by fundraising, popularity and influence, not public service. Executive branch expands its power beyond constitutional limits instead of just executing laws, it ends up interpreting, enforcing laws, often bypassing executive orders. Executive behave like monarchs or emperors. Leadership is judged on **style, charisma, and image**, not substance or moral responsibility, becoming more of performers than administrators.  
+          
+        In cases of civil unrest, leaders may enforce laws and use military force to suppress dissent, which contradicts democratic principles. So it’s all misuse of power.
         
 3. **Judiciary** – Interprets the laws and ensures justice (Courts and Judges)
     
