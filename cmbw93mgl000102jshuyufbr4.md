@@ -8,9 +8,9 @@ tags: learning, life, life-lessons
 
 ---
 
-I came from a Hindu family background with authority father environment, but I’ve always had a sense of scepticism towards religious practices. I’m not a religious person. I’ve always been a truth seeker—questioning things and not simply accepting the immediate norms presented by society. Not in an explicit, confrontational way, but I’ve always known these norms are not the ultimate truth.
+I came from a middle class family, Hindu family background, but I’ve always had a sense of scepticism towards religious practices and social norms. I’m not a religious person. I’ve always been a truth seeker—questioning things and not simply accepting the immediate norms presented by society. Not in an explicit, confrontational way, but I’ve always known these norms are not the ultimate truth.
 
-After my diploma, at the end of my one-year internship at Tata Motors, I had a strong desire to go to Germany for higher studies. It felt like the right place for my engineering background. But I couldn’t go—my father wasn’t very supportive in that direction. So, I ended up joining a college near my parents’ place.
+After my Diploma in tool and die making, at the end of my one-year internship at Tata Motors, I had a strong desire to go to Germany for higher studies. It felt like the right place for my engineering background. But I couldn’t go—my father wasn’t very supportive in that direction. So, I ended up joining a college near my parents’ place.
 
 ### **Existential Crisis:**
 
