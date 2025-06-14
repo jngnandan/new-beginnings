@@ -38,7 +38,7 @@ It gave more opportunity to try different things, work in many different places 
 
 After many circles of monthly bill payments, I got to deal with the cash flow, something I wasn’t used to before. I have a hope that I could settle and my parents and relatives are little proud of me etc.
 
-After trying many different jobs, I realized I can reduce my work, still I don’t feel satisfied.
+After trying many different jobs, I realized I can reduce my work so much, but yet still I don’t feel satisfied.
 
 ### **Different Job Experiences:**
 
@@ -54,7 +54,7 @@ At the same time, I was reading and researching a lot—trying to understand the
 
 After reading over 1000 books, living in 20 different houses, doing many jobs in many different places, and working with many nationalities— I came to see that many people are caught in the same system in the name of standards. Some don’t know how to describe these experiences, deep down they know it’s not right but still for the sake of recognition and material comfort, they accepted the rules given by the system.
 
-Overall, I saw that everything is rigged. I had enough. I took more time to introspection, reading, and day to day basis reflections, I realized fulfilment is what matters eventually, this what I was telling to my peers as well. I was just flowing with the system after understanding it all. Furthermore, I also spent a good amount of time with a psychologist—around 6 months, doing many recreational activities travelling, swimming etc. Last 6 months I really enjoyed my life, people around me also little jealous of me because how happy I’m without getting caught up in worldly responsibilities etc. They see I’m glowing and revitalised.
+Overall, I saw that everything is rigged. I had enough. I took more time to introspection, reading, and day to day basis reflections, I realized fulfilment is what matters eventually, this what I was telling to my peers as well. I was just flowing with the system after understanding it all. Furthermore, I also spent a good amount of time with a psychologist—around 6 months, doing many recreational activities travelling, swimming etc. Last 6 months I really enjoyed my life, people around me also little jealous of me because how happy I’m without getting caught up in worldly responsibilities etc. They see that I’m glowing and revitalised, from dullness.
 
 I also felt psychology not the ultimate solution, it’s only temporary because they are seeing through frameworks. They couldn’t completely solve or heal the patterns I was dealing with. There was a sense of judgment and a subtle “less-than them” approach, they are not truly caring unless we pay is little off to me as well.
 
