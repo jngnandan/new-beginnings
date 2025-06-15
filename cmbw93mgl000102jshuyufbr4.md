@@ -1,5 +1,7 @@
 ---
-title: "Truth seeking: Snakes & Ladders"
+title: "Unveiling Truth : Snakes & Ladders"
+seoTitle: "Unveiling Truth: Snakes & Ladders Insights"
+seoDescription: "Explore a personal journey of self-discovery, questioning societal norms, and finding fulfillment through spirituality and international experiences"
 datePublished: Sat Jun 14 2025 13:06:59 GMT+0000 (Coordinated Universal Time)
 cuid: cmbw93mgl000102jshuyufbr4
 slug: truth-seeking-snakes-and-ladders
