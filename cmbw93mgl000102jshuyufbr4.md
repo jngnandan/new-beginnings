@@ -24,7 +24,6 @@ During that time, I started reading different books out of my interest and to es
 
 After I graduated, I wanted to attempt GATE exam which is mainly to get into top colleges and other competitive exams, my interest was to gain deep knowledge into engineering irrespective of them. There, I didn’t like keeping hundreds of people in a room and teaching them, students spend tens hours daily to get ranks and I saw many people are attempting again and it was so tough for everybody like they need to study all the time to have a chance. I felt it’s not for me, I started learning skills I like like Adobe software tools, I was helping with different early stage startups with my skills, and they liked my work. I didn’t rank in that exam, it was like keeping most people in a race that most of them can’t win type situation.
 
-  
 After that joined a 10-day Vipassana meditation camp. It was really intensive. There, I met someone who worked in the film industry. He gave me some insight into what’s happening in the world and introduced me to Noam Chomsky’s work. After Vipassana, life felt easy for about 15 days like without difficulties so on, and I got interested in doing more as well.
 
 I started reading what he suggested, and I also shared things I found along the way. That exchange really expanded my understanding.
@@ -75,4 +74,4 @@ My spiritual process accelerated, and I found my purpose. I did a lot of shadow 
 
 It was really life-changing. I was able to heal all the patterns. Life became easier, liberated with ease. But still, outsiders seemed to think I wasn’t enough or judged me externally. Internally, I feel more fulfilled and joyful irrespective of that.
 
-I’ll share more about what I did in terms of processes soon, and subscribe for more of my authentic posts!
+Thanks for reading the post, and subscribe for more of my authentic posts!
